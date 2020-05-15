@@ -1,18 +1,9 @@
 ![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 <a name="1" id="1" target="_blank"></a> <span id="1"></span>
-# 欢迎来到翻墙部落！
+
 
 打开天窗,听一听外面的声音... <A href="https://github.com/oGate2/oGate/blob/master/README.md"><STRONG><FONT size=4>网门</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><STRONG><FONT size=4><A href="https://github.com/dagcey288/ntdtv/blob/master/gb/442749_1.md?dfdagcey288h#1" target=_blank><STRONG><FONT size=4>避疫之道</FONT></STRONG></A></FONT></STRONG>  | <A href="https://git.io/JeO7o" target=_blank><STRONG><FONT size=4>中国禁闻</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7l" target=_blank><STRONG><FONT size=4>全球热点</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO78" target=_blank><STRONG><FONT size=4>时事评论</FONT></STRONG></A><STRONG><FONT size=4> | </FONT></STRONG><A href="https://git.io/JeO7V" target=_blank><STRONG><FONT size=4>中华正统文化</FONT></STRONG></A>
 
-**本页固定短网址**：**https://git.io/urfos**  推荐使用ie，火狐，chrome等非国产浏览器访问！
-
-**如果本页图片或软件无法下载，请尝试刷新页面即可。**
-
-**请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，敬请广传,功德无量！**
-
-★★天灭中共，瘟疫预警。告訴您的親人和朋友，赶快退出中共的“党、团、队”组织，**三退保平安**，不跟邪党陪葬！★★
-
-★★诚心敬念“**法轮大法好、真善忍好**”，就会得到上天的护佑，躲过这次瘟疫。★★
 
 ----------------------------------------------------------------------
 
@@ -37,7 +28,7 @@
 
 **爱博电视**  ★推荐★海外电视直播IPPOTV绿色版 Ver.12（0944c）[点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/iPPOTV.rar)
 
-【安卓版翻墙软件】
+【安卓版软件】
 
 【★推荐★】**无界一点通**安卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
@@ -54,18 +45,6 @@
 
 ![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 <a name="2" id="2" target="_blank"></a> <span id="2"></span>
-
-**●快退出共产党、共青团、少先队，保平安！**
-
-进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。中共不等于中国！爱国不等于爱党！
-
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！目前已有超过3亿5千万民众在大纪元声明退出“党、团、队”，没有声明“三退”的大陆同胞们：时间不等人，请尽快“三退”！ 天要灭中共，“陰霾背后大疫藏”，不要给中共邪党做陪葬! 
-
-[声明退出党团队请点击这里](http://t.cn/AisCKUdV) [网址2](http://t.cn/AisCKUdt) 
-
-发送名字（可网名或小名）+数字编号 (1党 2团 3队) 至 kuaitui10@gmail.com 即可快速办理3退（声明退出党团少先队）。长期有效。
-
-如果有人不幸感染了中共病毒，不妨真心念“打倒中共恶魔”，或许奇迹就会出现。远离中共，谴责中共，不为中共站台，作为个人、组织和国家，都可能因此减轻甚至避免病毒侵害，迎接美好未来。
 
 ---------------------------------------------------------
 **●电子书下载** 如无法下载，刷新页面即可
@@ -112,19 +91,12 @@
 
 [共产党百年真相](https://git.io/JeO76)
 
-【绝处逢生】
-
-各种人罹患顽疾和绝症的悲凉故事，可是他们因各种因缘际遇，都得以绝处逢生。
-
-愿被病痛逼到绝路上的朋友，能够受益，给自己的人生重新敞开希望的大门。
 
 [TXT电子书点击下载](https://raw.githubusercontent.com/osurf/zdy/master/ebook_jcfs.zip)
 
 -------------------------------------------------------------
 
 ![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
-
-**●了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。**
 
 [点击访问明慧网](http://t.cn/Ri80wPK)  建议使用翻墙软件访问！
 
