@@ -15,12 +15,12 @@
  
  ----------------------------------------------------------------------
 
-**●最新翻墙软件下载** 如无法下载，刷新页面即可
+**●最新软件下载** 如无法下载，刷新页面即可
 
 
-【电脑版翻墙软件】  看 动 态 网，晓天下事！
+【电脑版软件】  看 动 态 网，晓天下事！
 
-**翻墙浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
+**浏览器** 支持win系统及Mac 、linux [最新版](https://github.com/fqcdn/fq/releases)
 
 **自 由 门** 自 由 门7.80版（2020年5月8日) [点击下载最新版](https://raw.githubusercontent.com/osurf/zdy/master/fg.rar)  [专业版下载](https://git.io/fgp)
 
@@ -30,7 +30,7 @@
 
 【安卓版软件】
 
-【★推荐★】**无界一点通**安卓版的VPN翻墙软件, 适用于安卓手机/安卓机顶盒等安卓平台。
+【★推荐★】**无界一点通**安卓版的VPN软件, 适用于安卓手机/安卓机顶盒等安卓平台。
 
 2020-3月19日无界发布安卓版4.8 下载地址 [无界一点通下载](https://raw.githubusercontent.com/osurf/zdy/master/um.apk?)
 
